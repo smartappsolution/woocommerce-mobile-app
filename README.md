@@ -39,3 +39,7 @@ We have support paypal, payUMoney, COD, addition will be chargeble.
 
 = Is any publishing cost ? = 
 We have also provide publishing service , you can purchase from us.
+
+For more details visit our site. 
+http://smartappsolution.net
+Contact Us on support@smartappsolution.net
